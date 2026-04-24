@@ -204,15 +204,15 @@ Contributions, issues, and feature requests are welcome! Feel free to check the 
 
 ## 🌟 Show your support
 
-If you like this project, please give it a [⭐️ star on GitHub](https://github.com/mruniquehacker/Knightbot)!
+If you like this project, please give it a [⭐️ star on GitHub](https://github.com/mrun
 
 
 ## Credits
 
-- [Professor](https://github.com/mruniquehacker)
-- [Baileys](https://github.com/adiwajshing/Baileys)
-- [TechGod143](https://github.com/TechGod143) for pair code
-- [Dgxeon](https://github.com/Dgxeon) for pair code
+- [Professor](https://chat.whatsapp.com/IvdoBV4wR46309ePFNld3K?mode=gi_t)
+- [Baileys](https://chat.whatsapp.com/JBpkh3ggLfTDfeFzbKcOVF?mode=gi_t)
+- [TechGod143](https://whatsapp.com/channel/0029VbCYvCG7NoZthTjDnR2n) for pair code
+- [Dgxeon](Follow the ꯭💗꯭𝗕𝗢𝗡𝗚 ♡︎꯭ 𝗥𝗜𝗦𝗛𝗜//𝟬𝟬𝟵 <𝟑♡꯭👀꯭᪳🫀🕊️🌷 channel on WhatsApp: https://whatsapp.com/channel/0029VaJo01Y84Om6Dq7LgG3G) for pair code
 
 ---
 
